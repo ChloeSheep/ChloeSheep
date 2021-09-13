@@ -10,4 +10,4 @@
 
 - ⚡ Interests: Python, ML, data science
 
-- 😄 Hobbies: FF14/Genshin are my favorite games! I also love AVG games made by BigFish, 4Friends, Madhead and so on.
+- 😄 Hobbies: FF14/Genshin are my favorite games! I also love AVG games made by BigFish, 4Friends, Madhead and so on. My favorite celebrities are BTS, Camila Cabello and Ariana Grande.
